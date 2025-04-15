@@ -167,5 +167,11 @@ By completing this task, you will:
 - A **live URL** ( https://shaikyounus155.github.io/Github-pages/) 
 
 ---
+![Screenshot (40)](https://github.com/user-attachments/assets/513655e2-4861-4a32-a478-568258423f5c)
 
+![Screenshot (47)](https://github.com/user-attachments/assets/b3263617-bc52-425f-ae59-83bf82ffdc1f)
 
+![Screenshot (41)](https://github.com/user-attachments/assets/64a386b0-a91f-495d-b4a1-417b9aa7b039)
+![Screenshot (42)](https://github.com/user-attachments/assets/febf366d-b417-430c-89aa-c8ece34f6f99)
+![Screenshot (43)](https://github.com/user-attachments/assets/99348ecc-3505-4b69-a138-9bf210f69fde)
+![Screenshot (44)](https://github.com/user-attachments/assets/ad9ee666-786b-4e05-8774-63a965bc8c30)
